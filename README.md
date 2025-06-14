@@ -1,1 +1,1 @@
-# SScript is discontinued! Thank you for your support!
+# SScript For SNF Mods SScript Wasn't By Me
